@@ -12,5 +12,5 @@ lucassanguinete2@gmail.com
 
 @lucas.sanguinete
 
-![](https://tenor.com/pt-BR/view/studio-ghibli-gif-23870646)
+![](https://media1.tenor.com/m/nqMC-PZUsUwAAAAC/studio-ghibli.gif)
 
